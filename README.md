@@ -1,2 +1,2 @@
 # landing-page-2021
-https://mailchi.mp/875b066f0ca1/startup-2021
+https://naderrazavi87.github.io/landing-page-2021/
